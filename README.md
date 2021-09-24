@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @uberkek
+- 👀 I’m interested in money
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me @struggleforair on telegram
